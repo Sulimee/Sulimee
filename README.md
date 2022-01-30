@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sulimee
-- 👀 I’m interested in various things in life sush as photography and dancing but I'm curently looking for a job.
+- 👀 I’m interested in various things in life sush as photography and dancing but most of all I'm curious.
 - 🌱 I’m currently learning python programming
 - 💞️ I’m looking to collaborate on diferent projects in order to keep practicing and gain in competences
 - 📫 How to reach me :
